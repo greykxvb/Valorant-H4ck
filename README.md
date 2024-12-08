@@ -1,4 +1,4 @@
-[DOWNLOAD LINK](https://bit.ly/3D3QiJe)
+[DOWNLOAD LINK](https://bit.ly/3VugxPv)
 
 ![Preview Image](photo_2024-11-01_16-26-33.jpg)
 
